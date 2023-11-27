@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ddust1n
+- 👀 I’m interested in not crashing my computor
+- 🌱 I’m currently learning how to break roblox studio
+- 💞️ I’m looking to collaborate on breaking roblox studio
+- 📫 How to reach me?
